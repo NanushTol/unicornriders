@@ -1,6 +1,6 @@
 Welocme to Unicorn Riders
 
-If you are looking for our website go here
+If you are looking for my website go here
 www.nanush.net
 
 Coming Soon: Your Ultimate Guide to Playing Unicorn Riders! 🌈🦄
